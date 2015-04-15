@@ -6,7 +6,7 @@ Just the normal Text Editor would do fine, but every time I press enter that not
 
 Again: I'm not a code writer but I imagine this would not take to much time to put togheter. I can pay (I'm a freelance so not that much, thou) and I'm sure there would be a great market among my fellow journalists. 
 
-If you're interested please write a note here or direct to me at lasse@nagotpahjartat.se
+If you're interested please write a note here or direct to me at lasse(at)nagotpahjartat(dot)se
 
 Best,
 Lasse
